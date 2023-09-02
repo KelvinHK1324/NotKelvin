@@ -6,9 +6,9 @@
 
 ### 聊系方法
 
-* DC:notkelvinhk
+- DC:notkelvinhk
 
-* IG:not_kelvin_hk
+- IG:not_kelvin_hk
 
 
 ![](https://cdn.discordapp.com/avatars/479264397215268885/2bf49444795a4d8e86219069a77d0325?size=1024)
