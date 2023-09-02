@@ -8,5 +8,5 @@
 
 ###聊系方法
 
-*DC:notkelvinhk
-*IG:not_kelvin_hk
+* DC:notkelvinhk
+* IG:not_kelvin_hk
